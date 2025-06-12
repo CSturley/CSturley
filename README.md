@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about spatial methods
 - 📫 How to reach me: c.e.sturley@leeds.ac.uk
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'mhalf Welsh
+- ⚡ Fun fact: I'm half Welsh
 -->
